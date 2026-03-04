@@ -1,5 +1,20 @@
 ## Hi there 👋
 
+Hello 👋
+
+- 🔭 CJCU student
+
+- 👯TW  TAINAN CITY from PINGTUNG county
+
+- 💬 Ask me questions about games
+
+- 📫 How to contact me: Instagram: Kuo_05_29
+
+- 😄 Pronoun: forsaken
+
+- ⚡ Interesting fact: NOT PROBLEM
+
+
 <!--
 **KTJ666/KTJ666** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
